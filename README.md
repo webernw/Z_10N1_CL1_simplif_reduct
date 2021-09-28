@@ -1,0 +1,1 @@
+# Z_10N1_CL1_simplif_reduct
